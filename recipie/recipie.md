@@ -1,0 +1,1 @@
+first take first bread and put butter with help of knife then cover second bread
